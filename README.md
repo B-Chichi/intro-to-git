@@ -1,0 +1,4 @@
+#AUTOBIOGRAPHY
+More often than not I'm asked to describe myself, I always scramble for words to say.Does this mean I know nothing about myself?Or I never cared enough to find out?Either way,what does that say about me.Both scenarios seem ominous I must say.But if I ask someone about it I can just predict what they're gonna say,you're 24 Brian,you don't need to have everything figured out yet,in all fairness that is a valid point,but there should be a foundation for that and that is exactly what I lack.I do not know who I am,I can admit that to myself,but I know where I have been and what I have been through.So on the journey to find out who Brian Bett is,I decided to journal about my past in order to see if I can predict what my future holds.This is my story;
+
+ 
